@@ -42,3 +42,5 @@ We need your help to make the summer school better next year!
 At the end of the course, please fill in our [Mentimeter feedback poll](https://www.menti.com/al3jp189dpy4) before you leave today (it will only take 3 minutes):
 
 
+## Hackathon padlet
+[Your exciting results!](https://padlet.com/jpinney6/earthquakes-hackathon-zi2wc2vdyp4qmn57)
